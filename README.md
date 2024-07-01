@@ -1,1 +1,1 @@
-estudando e praticando
+estudando e praticando.
