@@ -1,1 +1,1 @@
-#estudando e praticando FOR
+estudando e praticando
